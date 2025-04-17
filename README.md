@@ -76,7 +76,7 @@
 ---
 
 ## 📫 Connect with Me
-- 📧 Email: viren.ghone1@gmail.com
+- 📧 Email: virenghone1@gmail.com
 
 ---
 
